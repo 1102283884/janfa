@@ -1,2 +1,3 @@
 欲练此功
 确实不懂。。。。。
+岳不群参悟：AAAAAAAAAAAAAAAAAAAAAAAAAAAAA
